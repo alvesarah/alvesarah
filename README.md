@@ -1,4 +1,4 @@
-### Olá! Eu sou a Sarah Alves
+### Oii! Eu sou a Sarah Alves, bem-vindo! 🖤
 
 - 🌱 Estudando Javascript
 - 😄 Pronouns: ela/dela
